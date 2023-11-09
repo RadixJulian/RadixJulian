@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RadixJulian
+- 👀 I’m interested in Software Development, CyberSecurity
+- 🌱 I’m currently learning Economics & Business
+- 📫 How to reach me radix.julian.owen@gmail.com
